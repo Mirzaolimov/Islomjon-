@@ -1,0 +1,2 @@
+# Islomjon-
+Oʻrta
